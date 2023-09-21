@@ -5,6 +5,8 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ravi11112?tab=repositories](https://github.com/ravi11112?tab=repositories)
 
+- 🔥 linkedin [https://www.linkedin.com/in/ravi-parhad-a3b5561a5](https://www.linkedin.com/in/ravi-parhad-a3b5561a5)
+
 - 📫 How to reach me **raviparhad2019@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
